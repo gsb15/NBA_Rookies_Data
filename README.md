@@ -1,0 +1,1 @@
+These data are from Martin CL, Arundale AJ, Kluzek S, Ferguson T, Collins GS, Bullock GS. Characterization of rookie season injury and illness and career longevity among National Basketball Association players. JAMA network open. 2021 Oct 1;4(10):e2128199-.
